@@ -2,11 +2,11 @@
 * 1 cup (235 ml) stout (such as Guinness)
 * 1 cup (2 sticks, 8 ounces or 230 grams) unsalted butter
 * 3/4 cup (65 grams) unsweetened cocoa powder (preferably Dutch-process)
-* 2 cups (230 grams) all purpose flour
+* 2 cups (230 grams) all purpose flour (a cake flour is good if you have that available)
 * 2 cups (400 grams) granulated sugar
 * 1 1/2 teaspoons baking soda
 * 3/4 teaspoon salt
-* 2 large eggs
+* 2 large eggs (or more if the eggs are on the small side)
 * 2/3 cup (160 grams) sour cream
 * 6 ounces (170 grams) good semisweet chocolate chips
 * 6 tablespoons (90 ml) heavy cream
